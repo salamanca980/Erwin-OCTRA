@@ -1,2 +1,2 @@
 # Erwin-OCTRA
-hihello road coin
+why I'm not successful in crypto
